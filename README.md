@@ -1,0 +1,1 @@
+本课程书籍资源归cambridge university press及British council所有，课件由Ryan保留归属权
